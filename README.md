@@ -36,6 +36,7 @@ No ads, no confusion — just simple tools to help you find and explore Telegram
 ## 🌍 Visit SearchKid
 
 👉 **Website:** [https://www.searchkid.online](https://www.searchkid.online)
+👉 **Telegram Group:** [https://t.me/searchkid](https://t.me/searchkid)
 
 ---
 
